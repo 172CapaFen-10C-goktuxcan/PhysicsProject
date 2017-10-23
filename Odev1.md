@@ -15,5 +15,5 @@ Aşağıda kaynakçalara yer verilecektir. Konunuzla ilgili en az 3 tane referan
 http://www.rdmag.com/news/2012/10/physicists-crack-another-piece-glass-p...
 Son erişim tarihi: 15 Aralık 2012.
 
-
+guzel
 
